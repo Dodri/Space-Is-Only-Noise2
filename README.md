@@ -1,7 +1,7 @@
 # Space-Is-Only-Noise2
 Unity VR Project
 
-DOWNLOADLINK: https://we.tl/in7XRscRKN (available for one Week, till 02.08) 
+DOWNLOADLINK: https://we.tl/t-hDmNBinMfy (available for one Week, till 06.09) 
 
 Media Transformation 2 – Interactive Storytelling in Virtual Reality
 
